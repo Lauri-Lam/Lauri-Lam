@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I'm Lauri!
 I'm currently studying computer science engineering.
 
 
